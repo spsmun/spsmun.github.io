@@ -1,1 +1,0 @@
-# spsmun.github.io
